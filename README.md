@@ -1,0 +1,1 @@
+# 6TI_ADAM_LAYOUT
